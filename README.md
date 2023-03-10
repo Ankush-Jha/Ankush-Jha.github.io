@@ -16,6 +16,7 @@
 * Thinkpad X1 
 * Sony WH1000-XM4
 * Logitech G502
+* Kindle Oasis
 
 ----Until the Site is in progress!----
 

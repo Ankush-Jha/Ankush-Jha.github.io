@@ -3,6 +3,7 @@
 * An astrophile and technophile.
 * Gold Medalist in IMO, NSO and NCO
 * Under 100 Rank in BYJU's DSSL.
+* State in Football, TT and Badminton 
 # Hobbies
 * playing Football.
 * Loves to code.

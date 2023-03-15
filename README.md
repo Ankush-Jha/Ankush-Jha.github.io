@@ -12,6 +12,12 @@
 * Bitcoin Mining.
 * Love to improve myself.
 * Reading Books.
+# Reach me at
+* Mail: oxit89@gmail.com
+* Reddit: u/Ankush_Jha 
+* Discord: Ankush_Jha#6147
+* Instagram: instagram.com/logontoankush.in
+* Work mail ID: 20180144988@soesector17rohini.co.in
 
 # My Setup and Accessories
 * Thinkpad X1 

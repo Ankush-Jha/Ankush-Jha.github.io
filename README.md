@@ -1,9 +1,8 @@
 # About Me!
-* Hi there I am Ankush Jha, currently in 11th Grade (PCM) student at the School of Excellence
+* Hi there I am Ankush Jha, currently in 12th Grade (PCM) student at the School of Excellence
 * An astrophile and technophile.
 * Gold Medalist in IMO, NSO and NCO
 * Under 100 Rank in BYJU's DSSL.
-* State in Football, TT and Badminton 
 # Hobbies
 * playing Football.
 * Loves to code.
@@ -24,7 +23,7 @@
 * Sony WH1000-XM4
 * Kindle Oasis
 
-----Until the Site is in progress!----
+----Until the Site nd me, both are in progress..!!----
 
 
 
